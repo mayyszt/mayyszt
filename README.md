@@ -1,7 +1,11 @@
 # 🎀 About Me:
 
-꩜ .ᐟ 
+₊˚⊹   𝐒𝐭✰𝐫𝐠𝐢𝐫𝐥   ꒱
+  ★ ! 444  ·    ˙  희망 
 
+        — 🎧 !!  𝘴𝘪𝘹𝘵𝘦𝘦𝘯 
+ ──★ ˙ ̟    have a good day !! <𝟑
+ 
 # 🌐 Socials:
 [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/mayyszt) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:mayragoncalvesdossantos@gmail.com) 
 
